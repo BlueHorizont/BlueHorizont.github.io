@@ -13,5 +13,3 @@ Robin McLaurin Williams war ein US-amerikanischer Schauspieler und Komiker. Er w
 * und am Ende leider depressiv
 
 ## Das ist sein Motto
-
-No matter what people tell you, words and ideas can change this world. From Dead Poets Society
