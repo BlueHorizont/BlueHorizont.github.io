@@ -11,3 +11,8 @@ Robin McLaurin Williams war ein US-amerikanischer Schauspieler und Komiker. Er w
 * liebenswert 
 * er liebte Frauen über alles
 * und am Ende leider depressiv
+
+## Das ist sein Motto
+
+> No matter what people tell you, words and ideas can change this world. 
+> Dead Poets Society
